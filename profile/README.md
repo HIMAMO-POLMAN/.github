@@ -18,6 +18,6 @@ Untuk akses atau permintaan kolaborasi, silakan hubungi penanggung jawab organis
 
 Email: informasihimamo@gmail.com
 
-Website: https://himamopolman.org
+Website: https://himamopolman.com
 
 Instagram: https://www.instagram.com/himamo_polman/
